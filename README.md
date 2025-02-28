@@ -24,7 +24,7 @@
 ---
 
 ## 📬 Connect with Me  
-📧 **Email**: [Vallamgurubabu8@gmail.com](mailto:Vallamgurubabu8@gmail.com)  
+📧 **Email**: [vallamgurubabu8@gmail.com](mailto:Vallamgurubabu8@gmail.com)  
 🔗 **LinkedIn**: [[Vallam Gurubabu](#)](https://www.linkedin.com/in/vallam-gurubabu-13994027a/)  
 
 ---
